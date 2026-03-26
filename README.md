@@ -1,4 +1,4 @@
-# Pradhnya-# Borancha.karthika
+# Pradhnya-# Pradhnyapadar
 # Hi, I am Pradhnya .Nandkishor. Padar
 
 🎓 Branch: Integrated Mtech CSE (Compational and Data Science)
